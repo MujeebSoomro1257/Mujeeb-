@@ -1,2 +1,2 @@
 # Mujeeb-
-Iam instrest for Acting 
+Iam instrest for gaming and programming 
